@@ -2,8 +2,8 @@
 <img src="https://media.giphy.com/media/dWesBcTLavkZuG35MI/giphy.gif" width="600" height="300"/>
 </div>
 💜:Dannyellacorreia 💜
-- Estou com 2.4 anitos 😊
-- Faço parte da família de Cristo 🙏
+- ⚡:Estou com 2.4 anitos 😊
+- 🔭: Faço parte da família de Cristo 🙏
 - Casada 💌 👩‍❤️‍💋‍👨 👰‍♀️
 - Amante de Redes de 💻!
 - Formada em Telecomunicações ☎️ 💻 📠
