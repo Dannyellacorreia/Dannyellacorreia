@@ -2,12 +2,12 @@
 <img src="https://media.giphy.com/media/dWesBcTLavkZuG35MI/giphy.gif" width="600" height="300"/>
 </div>
 💜:Dannyellacorreia 💜
-Estou com 2.4 anitos 😊
-Faço parte da família de Cristo 🙏
-Casada 💌 👩‍❤️‍💋‍👨 👰‍♀️
-Amante de Redes de 💻!
-Formada em Telecomunicações ☎️ 💻 📠
-Estou agora navegando nas 🏖️ de PROGRAMAÇÃO...
+- Estou com 2.4 anitos 😊
+- Faço parte da família de Cristo 🙏
+- Casada 💌 👩‍❤️‍💋‍👨 👰‍♀️
+- Amante de Redes de 💻!
+- Formada em Telecomunicações ☎️ 💻 📠
+- Estou agora navegando nas 🏖️ de PROGRAMAÇÃO...
 
 ## Iam Learning
 <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/opensuse/opensuse-original.svg" with="50" height="50" /> 
