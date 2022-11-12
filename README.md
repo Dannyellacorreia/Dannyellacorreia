@@ -1,3 +1,6 @@
+
+<img src="https://media.giphy.com/media/dWesBcTLavkZuG35MI/giphy.gif" width="600" height="300"/>
+</div>
 💜:Dannyellacorreia 💜
 Estou com 2.4 anitos 😊
 Faço parte da família de Cristo 🙏
@@ -12,6 +15,5 @@ Estou agora navegando nas 🏖️ de PROGRAMAÇÃO...
 ## Contactos
 <a href="https://www.linkedin.com/in/danielacutambo" target="_blank"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a> 
 <a href = "mailto:contato@danielacalungacorreia@gmail.com"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
-<img src="https://media.giphy.com/media/dWesBcTLavkZuG35MI/giphy.gif" width="600" height="300"/>
-</div>
+
 
