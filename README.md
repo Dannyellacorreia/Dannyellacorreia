@@ -6,5 +6,5 @@ Amante de Redes de 💻!
 Formada em Telecomunicações ☎️ 💻 📠
 Estou agora navegando nas 🏖️ de PROGRAMAÇÃO...
 
-## Ferramentas de tecnologia
-<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/opensuse/opensuse-original.svg" />
+## Iam Learning
+<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/coffeescript/coffeescript-original.svg" with=
