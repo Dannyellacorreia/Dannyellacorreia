@@ -7,4 +7,4 @@ Formada em Telecomunicações ☎️ 💻 📠
 Estou agora navegando nas 🏖️ de PROGRAMAÇÃO...
 
 ## Iam Learning
-<<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/opensuse/opensuse-plain.svg" /> with="100" height="100" /> 
+<<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/opensuse/opensuse-original.svg" /> /> with="80" height="80" /> 
